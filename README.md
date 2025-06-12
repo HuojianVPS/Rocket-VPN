@@ -1,6 +1,6 @@
 🚀火箭VPN
 
-🚀官方地址：https://www.rocketvpn.one/
+🚀官方地址：https://www.rocketvpn.store
 
 🌐 全球高速节点覆盖：
 
