@@ -1,4 +1,4 @@
-🚀火箭VPN
+🚀RocketVPN
 
 🚀官方地址1：https://www.rocketvpn.store
 
